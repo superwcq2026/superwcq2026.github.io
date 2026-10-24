@@ -1,1 +1,1 @@
-# superwcq2026.github.io.
+# superwcq2026.github.io
